@@ -1,2 +1,1 @@
-# champ-prime-privacy-policy
-Privacy &amp; Policy of Champ Prime
+# Privacy Policy of Champ Prime
